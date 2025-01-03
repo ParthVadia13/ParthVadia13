@@ -2,7 +2,7 @@
 ## who am i?
 ### - 📖high-school student
 ### - 🕹️game dev hobbyist (check out my itch.io page!)
-### - 🧑‍💻aspiring cybersecurity proffesional
+### - 🧑‍💻aspiring cybersecurity professional
 ### - 👟cross-country runner
 ### - 📼retrofuturistic/cassettefuturistic design addict
 ### 
